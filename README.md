@@ -1,3 +1,4 @@
-sean bienvenidos a mi primera pagina, por los momentos no se ofrecen ningun tipo de servicios debido a que esto es una pagina de prueba 
+sean bienvenidos a la primera actualizacion de la pagina, desde ahora no cuenta con ningun cambio drastico
+solo el color nuevo
 
-los invito a esperas actualizaciones que no van a llegar, gracias por visitar mi pagina
+no exigan mucho que apenas y se publicar esto
