@@ -1,4 +1,3 @@
-sean bienvenidos a la primera actualizacion de la pagina, desde ahora no cuenta con ningun cambio drastico
-solo el color nuevo
-
-no exigan mucho que apenas y se publicar esto
+sean bienvenidos a la primera actualizacion
+por los momentos solo disfruten el nuevo color, es lo mejor que les puedo ofrecer
+no exigan mucho
